@@ -6,7 +6,7 @@ Navigate to Doge Unblocker in Apps.
 
 Load
 https://play.geforcenow.com/mall/#/deeplink?game-id=3b4f499b-fae7-4c45-8118-84a1712175bc
-In Doge Unblocker.
+In the Doge Unbl0ck3r App or Rammerhead App in Darrkon Cloud.
 
 CHERISH THIS GAME IN STEAM!
 
